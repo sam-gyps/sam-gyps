@@ -1,0 +1,7 @@
+- 👋 Hi, I’m @sam-gyps
+- 👀 I’m not interested in anything 
+- 🌱 I’m currently learning nothing
+- 💞️ I’m looking to collaborate on no
+- 📫 How to reach me no way
+- 😄 Pronouns: what
+- ⚡ Fun fact: no
